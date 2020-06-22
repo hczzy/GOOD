@@ -1,2 +1,2 @@
 # GOOD
-fw
+just something about myself
